@@ -1,5 +1,5 @@
 # Best-Snake-Games-for-PC
-http://playsnakegames.com/ – Online Snake Game
+playsnakegames.com – Online Snake Game
 This is easy however an especially addictive game. you'll merely simply begin the sport and create it the longest path for the day.
 
 Play it here on http://playsnakegames.com/ you'll be of any age simply sit around a heat hearth and begin creating the longest snake path for the day and break your own highest score.
